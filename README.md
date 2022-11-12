@@ -187,7 +187,7 @@
   - 問題兒童都來自異世界？
 
 ## 春
-  - 旋風管家！Cuties
+  - ~~旋風管家！Cuties~~
 
 ## 夏
   - 黃金拼圖
@@ -214,7 +214,7 @@
   - 蝦掰天文社 公立海老栖川高中天文社
 
 ## 秋
-  - 旋風管家！CAN'T TAKE MY EYES OFF YOU
+  - ~~旋風管家！CAN'T TAKE MY EYES OFF YOU~~
   - Little Busters!
 <br><br><br>
 
